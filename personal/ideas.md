@@ -1107,3 +1107,12 @@ The phone rang and I had it to my ear before the first trill had finished. Choke
 A ghost film where the ghosts move fast and drain heat. They are semi solid so they can get a hold of you and freeze the part they're holding off. 28 Days style non horror horror.
 Copying analogue things faster than they play. Synchronised. You cand go as fast as you want as long as they are together.
 Compression, when you make something take less space what does it lose?
+
+
+Powered by donuts t shirt
+
+I created a monster but the monster can dance.
+
+Art doesn’t have to exist to be effective.
+
+This idea first germinated many years ago after a boozy mid morning festival radio project launch. If you have ever attended the Edinburgh Internatonal Film Festival or Fringe you will be aware of how awash the city is in AM drinking. After the launch ran out of gratis drinks we retired to the Pear Tree, where the sun was beating down on the beer garden for once. After a lengthy discussion on the continued use of various racial epithets when referring to a type of shop or takewaay. Our attention turned to the decoupling of presentation form content. Initially focussing on ways in which a sensible idea could be presented badly then extending that to the case wher an idea, in this case the universal declaration of human rights was rendered incomprehensible by translating it into morse code. While coming up with different ways to present the dots and dashes. The idea emerged of returning them to text but in a different form, in this case dots would be the word fuck and dashes would be cunt.
