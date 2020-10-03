@@ -1,4 +1,4 @@
-#Fox In Moonlight
+# Fox In Moonlight
 
 I gaze up through tangled branches towards the fading sky. The blanket of cloud above may keep the day's scant warmth contained for a few hours more but once the sun has gone complete, my breath will turn to mist in the cooling air and drift away to join the thousand other exhalations of my life. I must find shelter to survive this night and deny that wicked girl her prize. I pull my thin coat tight about me and stumble on.
 
