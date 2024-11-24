@@ -345,84 +345,161 @@ You have to relax it to such an extent that it feels like it’s going to drift 
 Or slide off?
 Or slide off.
 I think I know that feeling.
+
 It was the kind of pub that had an upstairs and a downstairs. The downstairs was the place where the people who were too drunk to make it up the stairs went to drink.
+
 How come you get to eat all that shite and look like a whippet? If I even walk past a chippy I go up another belt hole. You’ve been fat for years, why start worrying about it now.
+
 Time had slowed so much that I could see the snowflakes become powder bursts as the bullet ploughed through them.
+
 Banging around in the kitchen as if one of the ingredients was still alive.
+
 Ice contains a memory of the past. As an iceberg melts and floats away it is forgetting what has gone before.
+
 When you’re little and you run away from home, and you get 100 yards down the road, and you stop and cry and have no idea what to do. That’s my life, all the time.
+
 Evil Crimes Unit
+
 How many tobacco industry executives smoke? None of them and they still pretend it isn’t bad for you. Look at biscuit executives, sloping off with free boxes at every available opportunity.
+
 There’s nothing so lonely as a single toothbrush.
+
 A transport company that teleports objects by having the same object at the other end. Eg I send Duncan a copy of P Hamilton’s new book by posting my copy to their warehouse at this end and they send a copy from their warehouse at his end. It gets interesting if people can send things by posting a similar but not identical object at their end. Say I sent The Algebraist instead.
+
 Spun gold and angels feathers.
+
 Teleporting box, you climb in and swap places with someone, somewhere else in the world who has some random thing in common with you.
+
 Love’s like chocolate. You can have all the different foods and drinks and tastes in the world, then one day you have your first piece of chocolate and it dawns on you that that is what it’s supposed to be like.
+
 When I get home that night I discover I have been burgled, or more correctly ransacked. Most of the door is still there. I’ve always been a glass half full kind of a guy.
+
 You are now going to explain to my why you borrowed one of the OB trucks and don’t give me any bullshit about it being enemy action. I know it was your cousin’s wedding. Well actually, it was my cousin’s wedding.
+
 When is a story finished? When the deadline passes, when it’s published or does another story have to draw you away like the beautiful woman you meet in the bar, leading you astray.
+
 Some stories are like marbles settling into the bottom of a bowl, this one is like a pencil standing on end. Every time I look at it, it falls over and I have to change something to make it stand up again.
+
 He had stinge written through him like a stick of Blackpool rock. If Blackpool was called stinge.
+
 I need a new girlfriend like I need a third testicle.
+
 She prays to the god of small helpings.
+
 Being dead is like being asleep for just one second.
+
 These heroin addicts have entirely the wrong idea, always stealing stuff and getting banged up. You can have a pretty serious custard cream habit for only 99p a day.
+
 Whale song is the whale’s version of blogging.
+
 What are you going to do at the party? I’m going to get drunk and try to fuck someone and hopefully this time it will be a girl. I mean last time it wasn’t so bad. He was really funny. It’s not like I ended up humping some asshole. Well, actually I guess I did.
+
 Life beat the smiles right out of me.
+
 We must bring these dogs to heel.
+
 I reached towards her eye and caught a tear on the tip of my finger, carefully transferring it to the tip of my tongue. That’s almost pure vodka you stupid, drunk bitch.
+
 The whole no sex before marriage thing is ridiculous. I mean would you buy a chair you hadn’t sat in.
+
 What if there was some root cause to entropy/aging that spread like an infection through the universe. Before it came into being everything was timeless. So that would be time or rather the flow of time then. Before everything was balanced and then one element tipped over and fell into the future causing a cascade.
+
 Even if the future is predetermined you still have to make the decisions that cause it to happen.
+
 What if I have no soul? What if I am an empty vessel that has confused itself into sentience?
+
 The world ends when you are dead.
+
 Excuses are the easiest things in the world to find.
+
 Someone getting in a fight with a baby backpack on. The camera could do that chest mounted thing where it follows the baby as its father tussles.
 Soft evolution, if you adapt to your environment and your environment is very forgiving you become weaker. Like glasses now, reducing the quality of the populations eyesight over time.
+
 Losing your scruples is like losing your eyesight, slowly over the years it ebbs away in such small increments that you don’t notice. Until one day you are staring in the mirror and you can’t recognise the person looking back at you.
+
 Not looking doesn’t make a problem go away. The leaky pipe under your floorboards still drips whether you can see it or not.
+
 Your eye’s were glittering little sparkly pools of Stella, you’d had so much to drink. You were full.
+
 A world where the islands are actually floating masses, drifting constantly on the seas. How would that affect the society?
+
 People have an inbuilt obsession with filling up space. They see an empty shelf and the buy some books for it. They see an empty room and they buy furniture for it. The ultimate expression of this obsession is breeding like a bunch of crazed rabbits with no consideration for scarcity of resources at all.
+
 You never get a second chance to make a first impression, unless you are talking to a goldfish or an Alzheimer’s sufferer.
+
 Is that the kind of jacket you call a bolero? Why are you so interested in what I’m wearing? Well, I’m going to tell all my friends I met a beautiful woman and I don’t want to get any of the details wrong.
+
 Why are you touching me? It’s important psychologically for me to reassure myself that other people are real now and again.
+
 I wish I could conjure up a statement, either profound or affecting but all I have are platitudes.
+
 The mind and body are two sides of the same coin. You can’t have one without the other. The mind needs the body to support it and without the mind a body is just an inert lump of flesh and bones.
+
 Why do the synchronistic events I’ve been noticing recently happen? Like the flags in dog poop and the remote controlled skateboard. The how would probably be quite interesting as well.
+
 An Eskimo and his friend are ice fishing; he gets a bite and starts reeling in. The whale he has caught bumps against the ice breaking off a big platform that the Eskimo and his friend are standing on. The friend leans over the side of the slab of ice and looks down at the whale. “Keep reeling, you’ve almost got him.”
+
 I have always appreciated the conceit of making a fictional character anonymous. Eg and then M_____ turned to Steve and said…
+
 Mr Jobby ringtone and animation.
+
 As long as the kid is healthy and the right colour I’ll be happy.
+
 Gems sparkle more before you polish them. As you work them they become less interesting. (Talking about overworking things)
+
 Governments love apathy if the people don’t care they can get away with anything. That’s why I don’t mind Bono so much at least he is trying. In both senses.
+
 There’s something interesting about empty rooms. I don’t know if it’s the absence of memories or their potential for the future. Maybe it’s just the Zen like austerity.
+
 I’m an emotional infant, does that count?
+
 One for the road, Mrs Swithensby?
+
 I’ve been in the Green Room for about twenty minutes and I’m not really enjoying it.
+
 How much of a fucker would that be?
+
 If you are listening to the travel news I’m going to guess you are either intending to go somewhere or waiting for someone to come to you.
+
 Do they call it nippy because the cold makes them stand up?
+
 I’m apologising, the least you could do is acknowledge it. Well, being jostled in the pub by a clumsy person isn’t all that an unusual occurrence. If you’d spilled a drink on me or smashed me on the side of the head with an ashtray, it would be a different story.
+
 It was one of the gay guys in the corner who had been cackling all night about everyone else’s footwear.
+
 Therapist = The rapist
+
 We need to find a toilet soon, I’m touching cloth here.
+
 Earthquake blanket.
+
 People’s interactions influenced by the way people interact on television/movies. Films are not getting more realistic, reality is getting more like films.
+
 And that’s when I heard my bedroom door creak open.
 The last time I had an experience that was anywhere near as unpleasant was back in school. I was in metal work class. I was unengaged with the ongoing lesson. So I decided to see what drawing a big metal rasp across the bottom of my front teeth felt like.
+
 We were out there with no ammo, our asses hanging in the wind.
+
 Even our British buddies couldn't help us because the manufacturer of our SM-61s had built in a 'safety feature'. Push a UK magazine into the breach and it would drop straight back out.
+
 The weapon rejected any unauthorised attempts of bullet usage. Meant they could vary their prices across markets. And not worry about any grey area sales.
+
 The distant sounds of traffic remind me of the waves on the beach that I have travelled so far from. The little lapping cars, and every now and then a lorry breaks upon the pebbles.
+
 And what about the Neo Christians.
+
 They call their promised land Gracie.
+
 Do you think they'll last longer than the other lot?
+
 I don't know, taking all the principles but rejecting the historical inaccuracies, pretty smart way to go.
+
 The barman asked if we were paying together, which I thought was quite a strange question. Isn't that how rounds usually work? His collar was turned up, rugger bugger fashion and after we sat down I noticed that he was playing with a miniature ball. Repeatedly throwing and catching passes with a simple childlike amusement. Probably taken one hard tackle too many.
+
 A shopping centre that subtly reconfigures itself to make sure you get to the exit you want.
+
 Before any self censorship can kick in I have raised the scissors, still closed, and inserted them experimentally into my ear.
+
 Why do Americans call Lego, legos and Speedos a speedo.
 If I can’t find any other way to be famous then I plan on spontaneously combusting, preferably somewhere public, in view of some CCTV cameras.
 Then I will forever be known as that guy who spontaneously combusted guy.
@@ -1105,9 +1182,10 @@ If you look stupid, then your on the list.
 If you talk stupid, then your on the list.
 The phone rang and I had it to my ear before the first trill had finished. Choked off like a murdered budgie. I listened to the voice on the other end of the line. There were a few important words and a lot of padding. I hung up without speaking. Outside I hailed a cab. I need a cashline and a pub in that order. Any particular establishment in mind, sir? One that's open now and will continue to be open for some time.
 A ghost film where the ghosts move fast and drain heat. They are semi solid so they can get a hold of you and freeze the part they're holding off. 28 Days style non horror horror.
-Copying analogue things faster than they play. Synchronised. You cand go as fast as you want as long as they are together.
-Compression, when you make something take less space what does it lose?
 
+Copying analogue things faster than they play. Synchronised. You cand go as fast as you want as long as they are together.
+
+Compression, when you make something take less space what does it lose?
 
 Powered by donuts t shirt
 
